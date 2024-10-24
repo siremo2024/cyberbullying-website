@@ -1,0 +1,1 @@
+This website is designed to raise awareness about cyberbullying in schools. It provides information on what cyberbullying is, its effects on students, and how to prevent it. The goal is to educate students, teachers, and parents on the importance of combating cyberbullying.
